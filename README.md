@@ -1,1 +1,0 @@
-# paveldotsenko.github.io
